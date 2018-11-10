@@ -1,1 +1,1 @@
-learnin apex from scratsh
+learnig apex from scratsh
